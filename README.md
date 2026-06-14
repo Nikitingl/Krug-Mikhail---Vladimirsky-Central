@@ -1,1 +1,0 @@
-Krug Mikhail - Vladimirsky Central
